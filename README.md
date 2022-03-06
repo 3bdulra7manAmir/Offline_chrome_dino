@@ -1,1 +1,0 @@
-# Chrome-offline-Dinosour-Game
